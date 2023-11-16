@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning ... MERN Stack
 - 💞️ I’m looking to collaborate on ...😛Any One if intrested to 🤖learn with us just 🔊DM me Any social media. 
 - 📫 How to reach me ...
-- Gmail - rubanone@gmail.com
+- Gmail - rubanonemore@gmail.com
 - insta - local_ruban47
 - youtube - Mr.monkey boy
 - wts No : +91 7339120624.
